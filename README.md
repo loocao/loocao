@@ -16,8 +16,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
-### 网站链接：
-
-- [Sleep Calculator – Sleep Cycles, REM & Wake Up Time](https://sleepcalculatorapp.com/)
-- [PetPet Generator](https://petpetgenerator.cc/)
