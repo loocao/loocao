@@ -22,3 +22,11 @@ Here are some ideas to get you started:
 - [Pet Pet Generator](https://petpetgenerator.cc/)
 - [PJSK Sticker Maker](https://pjskstickermaker.com/)
 
+## 🔗 My links
+
+- [text.is(loocao)](https://text.is/LV14O)
+- [rentry.org(loocao)](https://rentry.org/6p7zuy5v)
+- https://linktr.ee/loocao
+- https://egolinks.online/@loocao
+- https://linkstack.lgbt/@loocao
+- https://linksta.cc/@loocao
